@@ -22,7 +22,7 @@
 
 ## A Literary Note:
 > *"I ask you to walk through fire and storm with me—not to Thornfield, but to an evening of delight on Valentine’s Day. Say but the word, and my heart shall find its home beside yours at dinner."*  
-> —Your devoted **[Your Name]**
+> —Your devoted **Barzi**
 
 ### Response Options:
 ✅ **Accept** - Proceed with an enchanting Valentine's date 💖  
