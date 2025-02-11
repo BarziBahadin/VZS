@@ -1,7 +1,7 @@
 # Valentine's Day Proposal
 
 ## Feature Request:
-- A lovely evening with **[Her Name]**
+- A lovely evening with **You**
 - A romantic dinner, laughter, and unforgettable memories
 
 ## Issue:
